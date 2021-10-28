@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @GodsofRyans
+- 👀 I’m interested in ummmm Videos games anime manga ummm ect.
+- 🌱 I’m currently learning idk
+- 💞️ I’m looking to collaborate on people
+- 📫 How to reach me just email to me @ryansanc3@gmail.com
